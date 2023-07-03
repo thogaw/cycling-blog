@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  Schwetzingen Höllgrundtour
+title:  Schwetzinger Höllgrundtour
 date:   2023-07-03 12:00:00 +0200
 categories:
   - AC Weinheim 
