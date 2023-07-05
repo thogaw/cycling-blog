@@ -23,8 +23,8 @@ im Koffer.
 
 Die Sportler die am Start standen und den Marathon durchgezogen
 haben, berichteten von einigen gefährlichen Situation und Stürzen
-aufgrund von unangepassten Geschwindigkeiten und überschätzung des
-eigenen fahrerischen könnens.
+aufgrund von unangepassten Geschwindigkeiten und Überschätzung des
+eigenen fahrerischen Könnens.
 
 Daher ist es schade dass es dieses Jahr aufgrund des Wetters nicht
 geklappt hat, aber wir vom [AC Weinheim](https://ac-weinheim.de/portfolio-item/radsport/) sind nächstes Jahr wieder mit von der
