@@ -11,12 +11,12 @@ Am Sonntag dem 02.07.2023 fand neben der Höllgrund Tour auch der
 [Rad-Marathon Tannheimer Tal](https://www.rad-marathon.at) statt.
 
 Das wetter war leider mehr als bescheiden, so dass die Starter des
-[AC Weinheim](https://ac-weinheim.de/portfolio-item/radsport/) leider bereits aufgrund der Termperaturen
+[AC Weinheim](https://ac-weinheim.de/portfolio-item/radsport/) leider bereits aufgrund der Temperaturen
 sowie der damit nicht angemessenen Kleidung passen mussten. Es
-waren nur ca. 10°C im Tal, es regenete die Stunden vor dem Start,
+waren nur ca. 10°C im Tal, es regnete die Stunden vor dem Start,
 so dass für die Passüberquerungen (Hochtannbergpass sowie
 Riedbergpass) schon fast Winterkleidung auf den Abfahrten
-angesagt waren. Diese hatten waren leider nicht anfang Juli nicht
+angesagt waren. Diese hatten waren leider nicht Anfang Juli nicht
 im Koffer.
 
 ![Regen am Morgen](/assets/images/2023-07-05-tannheimer-tal/bild1.jpeg)
